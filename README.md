@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning trading and web3
 - 💞️ I’m looking to collaborate on crypto and forex learning and skills
 - 📫 How to reach me on x @ezeh_anselem
-- 😄 Pronouns: Dengen traders
+- 😄 Pronouns:He
 - ⚡ Fun fact: making money
 
 <!---
